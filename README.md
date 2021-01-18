@@ -13,11 +13,8 @@
 
 - I have a university degree, even though i never finished High School (Photography)
 - I have photographs published internationally
-- I am diagnosed with heavy Depression, Complicated Anxiety and Social Anxiety (Doing better though after years of therapy!)
-- As a part of my mental-health i have developed an obsessive mindset (It takes alot before I give up)
 - I don't drink alcohol
-- I have been a part of starting up businesses for friends (Consulting, coding, ideamunching, etc.)
-- I just recently learned to say No without getting massive bad conscience.
+- I have been a part of starting up businesses for friends (Consulting, coding, idea-munching, etc.)
 - I have worked as an audio & lighting technician (Concerts and Theater).
 - My house is almost fully automated.
 - I love complimenting other people, building them up and seeing them shine
