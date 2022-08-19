@@ -16,7 +16,6 @@
 - I don't drink alcohol
 - I have been a part of starting up businesses for friends (Consulting, coding, idea-munching, etc.)
 - I have worked as an audio & lighting technician (Concerts and Theater).
-- My house is almost fully automated.
 - I love complimenting other people, building them up and seeing them shine
 - You can ask me about anything.
 - I have a small amount of repositories because of my self-confidence\
