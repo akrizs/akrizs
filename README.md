@@ -5,7 +5,6 @@
 - English
 - JavaScript (Yes, HTML/CSS as well)
 - Python
-- PHP
 - Bash
 - C/C++ (Veeery limited but im always learning more!)
 
