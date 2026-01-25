@@ -1,3 +1,11 @@
+After the few years in the industry I would want to call myself an expert, althou it may hurt a bunch of people since ive tought myself everything I know, i'm just a nerd that figures stuff out and enjoys solving problems.
+
+#### Tech
+- Containers
+- Kubernetes
+- Electronics and Embedded devices
+- IoT
+
 #### 🌍 Languages
 
 - Icelandic
